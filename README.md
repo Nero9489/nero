@@ -1,3 +1,4 @@
+![bed_black](https://user-images.githubusercontent.com/82492204/128974589-c4ebfa2b-4be7-48b9-8850-5457dfb2bb29.png)
 ![emerald_chestplate](https://user-images.githubusercontent.com/82492204/128586078-d459deb8-3d9d-4db7-baf6-0f6105efb19c.png)
 ![17](https://user-images.githubusercontent.com/82492204/127756909-7b0987ea-3a30-441f-a7f0-f3aa0cc3d790.png)
 - 👋 Hi, I’m @nero0908
